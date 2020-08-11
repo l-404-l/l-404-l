@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Look what Keafy taught me!
 
 <!--
 **l-404-l/l-404-l** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
