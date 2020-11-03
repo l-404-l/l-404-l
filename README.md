@@ -1,2 +1,2 @@
 ### 👋 Look what Keafy taught me!
-### Current Discord: 404#0004
+### Current Discord: 404#1771
